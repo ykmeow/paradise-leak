@@ -1,1 +1,4 @@
-# paradise-leak
+# PARADISE CLIENT LEAK BY YO MOM
+
+FUCK OFF @SpigotRCE
+w/lilsq
